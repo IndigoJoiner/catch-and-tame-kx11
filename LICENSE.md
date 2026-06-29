@@ -1,4 +1,4 @@
-#  
+#  catch and tame Scripts stealth offers the most advanced catch and tame Script, with esp and one-hit kill. Perfect for dominating any match.
 
 
 
